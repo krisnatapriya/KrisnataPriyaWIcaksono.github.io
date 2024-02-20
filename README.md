@@ -1,1 +1,0 @@
-# krisnatapriya-KrisnataPriyaWicaksono.github.io
